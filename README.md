@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Any thing
 - 📫 How to reach me: ... (https://www.linkedin.com/in/ali-el-shafee-23660726/)
 - 😄 Pronouns: ... He or Him
-- ⚡ Fun fact: ...in the meddil of journy 
--->
+- ⚡ Fun fact: ...in the meddil of my journy 
